@@ -1,3 +1,3 @@
 # hashnode-backup
 
-a backup repo for [my blog powered by hashnode](https://yorickshan.hashnode.dev/)
+a backup repo for [my blog](https://yorickshan.hashnode.dev/) powered by hashnode
