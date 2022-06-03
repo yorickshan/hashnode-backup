@@ -17,6 +17,7 @@ https://www.youtube.com/watch?v=is7vn5URVcc&t=581s
 - https://www.youtube.com/c/LearnEnglishwithBobtheCanadian
 
 影子跟读
+- https://www.bilibili.com/video/BV1gK4y147wf?spm_id_from=333.999.0.0
 
 适合学习的英语节目：https://www.youtube.com/watch?v=-i90nkYc8I8&t=398s
 
